@@ -20,7 +20,7 @@ Bauxit Painting & Decorating is committed to providing **high-quality craftsmans
 ✅ Thorough cleanup after every project  
 
 ## Featured Projects
-We take pride in our completed projects, showcasing transformations that elevate homes. View our before-and-after images to see the difference our expertise makes!
+We take pride in our completed projects, showcasing transformations that elevate homes. View our [before-and-after images](https://www.bauxit.co.uk/gallary) to see the difference our expertise makes!
 
 ## Blogs & Resources
 Stay updated with our latest blog posts on painting and decorating tips, trends, and expert advice:
